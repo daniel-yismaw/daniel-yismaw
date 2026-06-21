@@ -1,2 +1,2 @@
-# samson-moges.github.io
-samson-moges.github.io
+# daniel-yismaw.github.io
+daniel-yismaw.github.io
